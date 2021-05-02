@@ -16,4 +16,4 @@
 📱 - https://t.me/thihenos \
 🐦 - https://twitter.com/thihenos \
 💼 - https://www.linkedin.com/in/thihenos/ \
-📚 - https://thihenos.medium.com/ \
+📚 - https://thihenos.medium.com/ 
